@@ -1,6 +1,6 @@
 # Minecraft 1.21.51.02 APK Download Gratuito Para Android Nova Versão 2025
 
-| ![photo_2024-12-16_10-28-19](https://github.com/user-attachments/assets/87927af1-36aa-4eaa-a92b-5c4587919122) | [![photo_2024-12-14_16-13-25](https://github.com/user-attachments/assets/e5669b9b-ceb5-4ad5-ae26-8a135ac161df)](https://aloapk.com/minecraft/)  |
+| ![photo_2024-12-16_10-28-19](https://github.com/user-attachments/assets/60b7a5ef-b2f8-4d29-b0bd-1d764246069f) | [![photo_2024-12-14_16-13-25](https://github.com/user-attachments/assets/e5669b9b-ceb5-4ad5-ae26-8a135ac161df)](https://aloapk.com/minecraft/)  |
 |:-------------------------------------------------:|-----------------------|
 | **Platform:** Android 8.0+                        | **Version:** 1.21.51.02        |
 | **Size:** 694 MB                                | ⭐️⭐️⭐️⭐️⭐️ (5/5) |
@@ -12,7 +12,8 @@
 
 **Minecraft APK** é um jogo sandbox que conquistou a imaginação de jogadores no mundo inteiro. Neste título popular, os jogadores exploram um mundo pixelado, coletam recursos, criam ferramentas e constroem estruturas, enquanto sobrevivem em um ambiente hostil. Seja projetando sua casa dos sonhos, explorando vastas paisagens ou enfrentando mobs perigosos, o jogo oferece possibilidades infinitas. As atualizações frequentes de **Minecraft** trazem sempre novos recursos, garantindo uma experiência emocionante.
 
-![395943724-a81d8efc-9181-4dd7-8b43-803299a34353](https://github.com/user-attachments/assets/39f5f694-e38c-4272-9a8a-0810d1c74eaf)
+![photo_2024-12-16_10-28-00](https://github.com/user-attachments/assets/941d0d02-6837-4ad0-a4df-0b640511379d)
+
 
 ---
 
